@@ -1,0 +1,2 @@
+# Gidai-
+agenda escolar. didactico
